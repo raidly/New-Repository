@@ -56,7 +56,7 @@ I've told you one, two, three, four, five, six thousand times
 Haven't I made it obvious? (Have I not made it obvious?)
 Haven't I made it clear? (I made it very clear)
 Want me to spell it out for you? (Yo)
-F-R-I-EN-D-S (I said F-R-I-E-N-D-S)
+F-R-I-E-N-D-S (I said F-R-I-E-N-D-S)
 Haven't I made it obvious? (I made it very obvious)
 Haven't I made it clear? (I made it very clear)
 Want me to spell it out for you?
